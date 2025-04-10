@@ -3,7 +3,7 @@
 
 ---
 
-📍 Curitiba - PR (disponível para mudança)  
+📍 Curitiba - PR  
 📧 miqueias.sillva66@gmail.com  
 🔗 [LinkedIn](https://www.linkedin.com/in/miqueiasslv)  
 💼 Buscando minha primeira oportunidade na área de TI  
